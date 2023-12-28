@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently studying for a BSc in computer science
 - 👯 I’m looking to collaborate on anything interesting
 - 📫 How to reach me: nachshonreinitz@gmail.com
-- 😄 Pronouns: HE/HIM/KING/GOD/LORD/NIGGAPLEASE/HIMMITHY/QUEENELIZABETHTHEEIGHTH/SUPPAPI
+- 😄 Pronouns: HE/HIM/KING/GOD/LORD/HIMMITHY/QUEENELIZABETHTHEEIGHTH/SUPPAPI
 - ⚡ Fun fact: I CAN BENCH UR MOM
