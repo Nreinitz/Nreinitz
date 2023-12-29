@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on anything interesting
 - 📫 How to reach me: nachshonreinitz@gmail.com
 - 😄 Pronouns: HE/HIM/KING/GOD/LORD/HIMMITHY/QUEENELIZABETHTHEEIGHTH/SUPPAPI
-- ⚡ Fun fact: I CAN BENCH UR MOM
+- ⚡ Fun fact: finishing a BSc in CS one year after high  school
